@@ -1,8 +1,8 @@
 买个耳机吧，会让你好受点  
  {\__/}  
 ( • - •)  
-/ ⊃🎧
---
+/ ⊃🎧  
+--  
 [粵語版《曾經我也想過一了百了》](https://www.youtube.com/watch?v=PJb-C3ENHJA)  
 [不得不愛](https://www.youtube.com/watch?v=UCSzc8BhIeo)  
 [我的歌声里](https://www.youtube.com/watch?v=w0dMz8RBG7g)  
@@ -34,12 +34,11 @@
 [少年 - 夢然 (Mira) ](https://www.youtube.com/watch?v=LGzDEu7Sh5g)  
 [寶石gem - 野狼disco](https://www.youtube.com/watch?v=ipggaw0mGjk)  
 [馬頔 03 南山南](https://www.youtube.com/watch?v=1cj1BApoYF0)  
-[寶石gem - 野狼disco](https://www.youtube.com/watch?v=ipggaw0mGjk)  
 [鞠文嫻 - BINGBIAN病變](https://www.youtube.com/watch?v=ZFw6rTEw1hA)  
 [蘇仨 - 沙漠駱駝](https://www.youtube.com/watch?v=8m7hxhyr4jc)  
 [于文文 - 体面](https://www.youtube.com/watch?v=rJgNVKrfmto)  
 [嚣张](https://www.youtube.com/watch?v=oAUmNEUJlJ0)  
---
+--  
 [Jekyll & Hyde (KR Version)](https://www.youtube.com/watch?v=tdkKAqD9eG0)  
 [Tones and I - Dance Monkey](https://www.youtube.com/watch?v=gADgM89skZQ)  
 [Dj Nanda Lia - Unity Anty - Barat Slow Bass](https://www.youtube.com/watch?v=bR4yFszUOCc)  
@@ -48,6 +47,28 @@
 [SKRILLEX - SUMMIT (FT. ELLIE GOULDING)](https://www.youtube.com/watch?v=OR6AV9yJPoM)  
 [Black Atlass - Kinda Like It](https://www.youtube.com/watch?v=kLjgvCE4Hoo)  
 [Imagine Dragons - Believer](https://www.youtube.com/watch?v=igxbB1-Q7Rs)  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
