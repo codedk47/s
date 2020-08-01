@@ -3,6 +3,7 @@
 ( • - •)  
 / ⊃🎧  
 --  
+[李克勤 - 紅日 (粵)](https://www.youtube.com/watch?v=2-rGtcdl5aE)  
 [粵語版《曾經我也想過一了百了》](https://www.youtube.com/watch?v=PJb-C3ENHJA)  
 [不得不愛](https://www.youtube.com/watch?v=UCSzc8BhIeo)  
 [我的歌声里](https://www.youtube.com/watch?v=w0dMz8RBG7g)  
@@ -20,6 +21,7 @@
 [薛之謙 Joker Xue【演員】](https://www.youtube.com/watch?v=XKuL5xaKZHM)  
 [胡彥斌 你要的全拿走](https://www.youtube.com/watch?v=CkCpPuCkurg)  
 [空城 - 楊坤](https://www.youtube.com/watch?v=mgmJ_0_DL38)  
+[空城 (DJ抖音版)](https://www.youtube.com/watch?v=UD-0AKlIarw)  
 [G.E.M.【寫不完的溫柔】](https://www.youtube.com/watch?v=BXHqGeS7jUQ)  
 [G.E.M.【寂寞星球的玫瑰】](https://www.youtube.com/watch?v=eifJaaYCBBM)  
 [G.E.M.【盲點 BLINDSPOT 】](https://www.youtube.com/watch?v=rzzul2fmufI)  
@@ -38,7 +40,23 @@
 [蘇仨 - 沙漠駱駝](https://www.youtube.com/watch?v=8m7hxhyr4jc)  
 [于文文 - 体面](https://www.youtube.com/watch?v=rJgNVKrfmto)  
 [嚣张](https://www.youtube.com/watch?v=oAUmNEUJlJ0)  
+[怎麼說我不愛你 - 蕭敬騰](https://www.youtube.com/watch?v=vOShOgcQZEE)  
+[dance flow - 迷人的危险](https://www.youtube.com/watch?v=04iSgtR7hqw)  
+[赤伶 - DJ版 ( New Ver )](https://www.youtube.com/watch?v=TCm_1dX11VY)  
+[夏婉安 - 入戲太深](https://www.youtube.com/watch?v=fevFQ0_FPOY)  
+[李玖哲療癒情歌精選集，精選抒情歌曲](https://www.youtube.com/watch?v=gbvu9h_nN7M)  
+[RAP/說唱專區](https://www.youtube.com/watch?v=iyCOXT6r8Ro&list=PLtAw-mgfCzRyD5qKNqumkTXqtPiYj3mlr&index=1)  
+[王蓉 爸爸妈妈](https://www.youtube.com/watch?v=P0azDf5QVGQ)  
+[Mc @ 犯错 Fan Cuo](https://www.youtube.com/watch?v=1hDIK1C6JmY)  
+[秋天不回来 - 王强](https://www.youtube.com/watch?v=qQVKXmpG7Vk)  
+[梁爽凉爽 - 根本你不懂得爱我](https://www.youtube.com/watch?v=GlZC77M6pc4)  
+[王贰浪- 往后余生](https://www.youtube.com/watch?v=Oa49Nym7wJk)  
+[周杰倫 米兰的小铁匠 ](https://www.youtube.com/watch?v=vGbHkCS9ofU)  
+[周杰倫 聽媽媽的話](https://www.youtube.com/watch?v=yJ31l68L6Tk)  
+[周杰倫 - 晴天](https://www.youtube.com/watch?v=v10bFxUDZsA)  
+[薛明媛、朱賀 - 非酋](https://www.youtube.com/watch?v=yTDnFHKZcBI)  
 --  
+[MASHUP NHỮNG BÀI HÁT TIKTOK HAY NHẤT 2020 PLAY, FADED, UNITY (ALAN WALKER)](https://www.youtube.com/watch?v=Vg72y-t1VrA)  
 [Jekyll & Hyde (KR Version)](https://www.youtube.com/watch?v=tdkKAqD9eG0)  
 [Tones and I - Dance Monkey](https://www.youtube.com/watch?v=gADgM89skZQ)  
 [Dj Nanda Lia - Unity Anty - Barat Slow Bass](https://www.youtube.com/watch?v=bR4yFszUOCc)  
@@ -47,28 +65,5 @@
 [SKRILLEX - SUMMIT (FT. ELLIE GOULDING)](https://www.youtube.com/watch?v=OR6AV9yJPoM)  
 [Black Atlass - Kinda Like It](https://www.youtube.com/watch?v=kLjgvCE4Hoo)  
 [Imagine Dragons - Believer](https://www.youtube.com/watch?v=igxbB1-Q7Rs)  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+[[Tuesday] Remix by Nurselim Boy/明洋](https://www.youtube.com/watch?v=AEFE4zW7NLg)  
+[Emma Sameth, Jeremy Zucker & WOLFE - Spin With You](https://www.youtube.com/watch?v=VtJDVeor_x4)  
