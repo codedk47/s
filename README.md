@@ -55,6 +55,8 @@
 [周杰倫 聽媽媽的話](https://www.youtube.com/watch?v=yJ31l68L6Tk)  
 [周杰倫 - 晴天](https://www.youtube.com/watch?v=v10bFxUDZsA)  
 [薛明媛、朱賀 - 非酋](https://www.youtube.com/watch?v=yTDnFHKZcBI)  
+[心墙 - 郭静](https://www.youtube.com/watch?v=hjtr22WBwS0)  
+[虚拟](https://www.youtube.com/watch?v=eMSQKQ6yrxU)  
 --  
 [MASHUP NHỮNG BÀI HÁT TIKTOK HAY NHẤT 2020 PLAY, FADED, UNITY (ALAN WALKER)](https://www.youtube.com/watch?v=Vg72y-t1VrA)  
 [Jekyll & Hyde (KR Version)](https://www.youtube.com/watch?v=tdkKAqD9eG0)  
