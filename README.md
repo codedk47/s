@@ -74,7 +74,11 @@
 [麦小兜 - 下山](https://www.youtube.com/watch?v=GgBKjB4QEGw)  
 [呂口口 - 各自成全](https://www.youtube.com/watch?v=ApfCjMDAJZ0)  
 [傅如喬 - 微微](https://www.youtube.com/watch?v=ek9RIHlIPjI)  
---  
+[電流妹 - 對方正在輸入](https://www.youtube.com/watch?v=APeq5Ow6dB4)  
+[伊晗 - 孤獨為榮](https://www.youtube.com/watch?v=7QmsUgTHzcY)  
+[鱼吃鸡主播一条小团团0v0唱歌9首合集](https://www.youtube.com/watch?v=fLmClb-RuGQ)  
+[一條小團團ovo 最全魔性翻唱合集 ](https://www.youtube.com/watch?v=sTC8vNd0hzo)  
+--  the boat that rocked
 [[Burnin' Up] Remix by Aero Chord](https://www.youtube.com/watch?v=l8uIH8xb1uw)  
 [My love remix](https://www.youtube.com/watch?v=pgy3RFP-XXw)  
 [Geisha - Dino Sor | TikTok EDM](https://www.youtube.com/watch?v=JSk5aW_CSl8)  
@@ -96,4 +100,6 @@
 [Imagine Dragons - Believer](https://www.youtube.com/watch?v=igxbB1-Q7Rs)  
 [[Tuesday] Remix by Nurselim Boy/明洋](https://www.youtube.com/watch?v=AEFE4zW7NLg)  
 [Emma Sameth, Jeremy Zucker & WOLFE - Spin With You](https://www.youtube.com/watch?v=VtJDVeor_x4)  
-[Danny Avila《End of the night》](https://www.youtube.com/watch?v=WRRX2iO0Ros)  
+[SPICA - Since You're Out Of My Life [English Subbed]](https://www.youtube.com/watch?v=txRtRR3ZAnE)  
+https://twitter.com/llll77169936  
+https://twitter.com/hduld1  
