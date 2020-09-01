@@ -81,7 +81,13 @@
 [一條小團團ovo 最全魔性翻唱合集 ](https://www.youtube.com/watch?v=sTC8vNd0hzo)  
 [一条小团团OvO必听！嘟嘟嘟嘟嘟猪叫翻唱 游戏BGM合集](https://www.youtube.com/watch?v=kx6nEBZK054)  
 [一条小团团魔性歌曲合辑](https://www.youtube.com/watch?v=l6gCWWM1yvE)  
---  the boat that rocked
+[鐵腦袋mp3 - 執迷不悟](https://www.youtube.com/watch?v=FuhAv0QfcDo)  
+[越来越不懂](https://www.youtube.com/watch?v=eEdnVpss7dY)  
+--  the boat that rocked  
+[Metric - Artificial Nocturne (Love Thy Brother Remix)](https://www.youtube.com/watch?v=02iETa6aUAA)  
+[Now I'm Ready](https://www.youtube.com/watch?v=-tCNgI9zirM)  
+[Almost Forgot《幾乎忘記》](https://www.youtube.com/watch?v=WecpfWN-IlI)  
+[Alone | A Chill Mix](https://www.youtube.com/watch?v=o0TZgKbUL7s)  
 [[Burnin' Up] Remix by Aero Chord](https://www.youtube.com/watch?v=l8uIH8xb1uw)  
 [My love remix](https://www.youtube.com/watch?v=pgy3RFP-XXw)  
 [Geisha - Dino Sor | TikTok EDM](https://www.youtube.com/watch?v=JSk5aW_CSl8)  
