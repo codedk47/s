@@ -83,6 +83,10 @@
 [一条小团团魔性歌曲合辑](https://www.youtube.com/watch?v=l6gCWWM1yvE)  
 [鐵腦袋mp3 - 執迷不悟](https://www.youtube.com/watch?v=FuhAv0QfcDo)  
 [越来越不懂](https://www.youtube.com/watch?v=eEdnVpss7dY)  
+[漂洋过海来看你 DJ *修复](https://www.youtube.com/watch?v=ucjwwM20taY)  
+[寂寞沙洲冷 - DJ阿福Remix](https://www.youtube.com/watch?v=JXO6tgHr2tk)  
+[YouTube音乐|戴上耳机《野孩子》](https://www.youtube.com/watch?v=KYZW55KJrK0)  
+[越南版《你的样子》DJ NgoĦi kia bao nhi](https://www.youtube.com/watch?v=Yabz6s_i1cY)  
 --  the boat that rocked  
 [Metric - Artificial Nocturne (Love Thy Brother Remix)](https://www.youtube.com/watch?v=02iETa6aUAA)  
 [Now I'm Ready](https://www.youtube.com/watch?v=-tCNgI9zirM)  
